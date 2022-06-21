@@ -1,1 +1,1 @@
-# xuexitongschool
+piaogewala.ga/school.txt
