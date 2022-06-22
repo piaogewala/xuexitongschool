@@ -1,2 +1,1 @@
-
-(https://raw.githubusercontent.com/piaogewala/xuexitongschool/main/school.txt)
+学习通！你的安全是傻逼做的吗？
